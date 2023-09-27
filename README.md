@@ -1,0 +1,1 @@
+# fortunefuture.github.io
